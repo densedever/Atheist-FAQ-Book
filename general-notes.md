@@ -27,61 +27,51 @@ It goes without saying that he wants nothing to do with me anymore. Of course, t
 Ensuing discussion:
 
 Jim-chriss Charles That's why there is FAITH. Without it even if 1000 wonders or miracles were to be performed before you. You won't believe it. But trust me @Dylan GOD exists.
-1
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Dylan LaCoursiere Those wonders and miracles have to be distinguished from my own imaginings. If I saw an angel one day, which would make more sense to conclude? That supernatural beings such as angels exist, or that something is up with my brain (that same something that has happened countless times throughout human history)?
 
-    Like
-
-     · Reply · 2y · Edited
+Like
+ · Reply · 2y · Edited
 
 Jim-chriss Charles Let me tell you something @Dylan. Once i thought the power of GOD lies in the miracles and wonders alone. Those are only by-products. First READ the WORD (take time and read), even if you read it like a novel but the more you read you will see how powerful it reflects how we/you are supposed to live.
 
-    Like
-
-     · Reply · 2y · Edited
+Like
+ · Reply · 2y · Edited
 
 Dylan LaCoursiere Wouldn't God's power unambiguously and unmistakably show itself in nature instead of needing to be interpreted through a word written by fallible man in a way that doesn't itself warrant belief over any other claim?
 
 God's all-powerful. He can do that. Not everyone's convinced by the beauty of a sunset or something.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Jim-chriss Charles GOD's WORD is like an interface. It has all the necessary POWER.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Dylan LaCoursiere Except we need a way to know it's actually the word of God, and that it really has power as compared with the word of deities from other religions. Anyone can say anything. Words aren't enough.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Jim-chriss Charles WORD + Faith ~> GOD's power.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Jim-chriss Charles You can't have a power to a certain portal if you don't read it's interface. You wanna became a budhist? Learn Buddhism. You wanna become a faithfully Atheist? Join particular societies. You wanna know GOD then learn his WORD and live it and see how powerful you can become!
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Jim-chriss Charles How can one say the food is delicious if she/he hasn't taken a slice of it? You wanna bath? Take your clothes off and jump into water then you may say it's hot/cold.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Dylan LaCoursiere I did that and this is how it turned out. I was a Christian for a number of years. A member of my church, a street witness handing out tracts, and on my way to seminary to become an apologist.
 
@@ -89,21 +79,19 @@ It was only after I started examining the reasoning that originally convinced me
 
 I haven't found any good reasons to this day. Only more claims.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Dylan LaCoursiere It's not defined objectively, it's defined contextually. "Good" in this case meaning "a sound and valid argument."
 
-    Like
+Like
 
      · Reply · 2y
 
 Jim-chriss Charles Did you experience the power of the Spirit? Or you were just a regular christian. Let me tell you something, even amongst non-believers there are those powerful ones and runner-ups
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Dylan LaCoursiere Can you define the power of the holy spirit like no Christian I've talked to in the last decade ever could?
 
@@ -111,9 +99,8 @@ I thought I did at the time, I was driven by the desire not to see a single soul
 
 I thought I was given the strength to face the world's depravity, to face my own sins, to bring light into the world, what other drive will you also have?
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Jim-chriss Charles So you mean you don't wanna believe in GOD's existence but you wanna believe in the opposite. That He doesn't exist! So, in another perspective...what is the probability he doesn't exist? If you say 100% i will ask you, why do you believe in every action there is an equal and opposite reaction?!
 
@@ -129,15 +116,13 @@ Dylan LaCoursiere You're putting words in my mouth, Jim. Can you spot where?
 
 Dylan LaCoursiere The problem of evil is of very little use if what we're talking about is existence. Even if the problem of evil were true and applied to god, that only says that god's a dick, not that he doesn't exist.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Jim-chriss Charles **** Okay @Dylan. You win. I don't wanna be a cause for you to insult G-d.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Dylan LaCoursiere You weren't, Jim. Where did you get that idea? I wasn't even insulting God. I just said the word "god" and "dick" in the same sentence, a sentence about a hypothetical.
 
@@ -147,15 +132,13 @@ However, I have to deal with the fact that, with my current knowledge, I have no
 
 That can change! It just hasn't yet.
 
-    Like
-
-     · Reply · 2y · Edited
+Like
+ · Reply · 2y · Edited
 
 Dylan LaCoursiere How great would it be for there actually to be a heaven awaiting the saved after death? I think you can already guess why.
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Jim-chriss Charles Our Lord is very merciful and gracious. May his gracious touch meet you oneday. For G-d rebukes who he loves.
 
@@ -165,141 +148,145 @@ Jim-chriss Charles Our Lord is very merciful and gracious. May his gracious touc
 
 Jim-chriss Charles The Bible says, "seek God with His full power". The problem with many of us is that, we want to experience G-d's existence without his full power(Word of God preaching to abstain from any kind of sin/sinful behavior)
 
-    Like
-
-     · Reply · 2y
+Like
+ · Reply · 2y
 
 Conor Anstey Jim-chriss Charles I see no evidence at all from you except "my god must exist because miracles". Learn to debate, and examine your own arguments. You can't use the Bible to demonstrate the existence of a god, because it's not a reliable source.
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Jim-chriss Charles I didn't say that. Read my comments(arguments) careful.
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Jim-chriss Charles Conor Anstey I just said even if wonders were to be performed he won't believe unless he reads/understands the message written in the Bible.
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Conor Anstey Jim-chriss Charles And what makes you so sure that your particular version of mythology is correct?
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Jim-chriss Charles I have seen it and perhaps feel how these things work!
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Conor Anstey Jim-chriss Charles Prove it.
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Jim-chriss Charles I can't tempt the Lord my God. And you shouldn't too.
 
-    Like
-
-     · Reply · 1y · Edited
+Like
+ · Reply · 1y · Edited
 
 Dylan LaCoursiere Do you know what you saw? Can you connect what you saw to your version of religion? How?
 
 Not tempting the Lord is the Bible's cop-out for saying a bunch of things its writers can't possibly know or prove, especially when they were people who subscribed to other superstitions, who weren't even the most advanced civilizations in the world at the time (the Chinese had them beat by a long shot), and who didn't know much of anything about the workings of the universe.
-1
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Jim-chriss Charles Not about wonders and miracles. But the power to subdue darkness and sin + how to hate it when you encounter one. All other stuffs are like bonus.
 
-    Like
-
-     · Reply · 1y · Edited
+Like
+ · Reply · 1y · Edited
 
 Conor Anstey Jim-chriss Charles There is no such thing as sin, and darkness is the absence of light. Fear of darkness is from instinctive fear of the unknown. It's nothing to do with your fairy tales.
-1
 
-    Like
-
-     · Reply · 1y · Edited
+Like
+ · Reply · 1y · Edited
 
 Jim-chriss Charles Haha don't let anything fool you. There is darkness everywhere unless you believe you will continue to live in simplicity.
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Dylan LaCoursiere When there are naturalistic explanations, preferring supernaturalistic explanations is a sign that you care more about having a worldview that makes you feel better than having a worldview that's correct and follows the evidence.
-1
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 
 Dylan LaCoursiere Living in simplicity as opposed to the ideas of a religion is a sign that you don't need to put forth mental effort trying to fit reality into your view instead of conforming your view to reality.
-1
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Jim-chriss Charles "Until when ye simple ones will continue to live in simplicity?"
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Conor Anstey Jim-chriss Charles Quit throwing ad hominems at us and actually answer our points. You haven't presented *anything*. Your whole argument boils down to "god exists because I believe he does".
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Dylan LaCoursiere Simplicity is explaining the universe's greatest questions with "God did it" and shoving away or making excuses not to consider alternate explanations that take facts and observations into account.
 
-    Like
-
-     · Reply · 1y · Edited
+Like
+ · Reply · 1y · Edited
 
 Jim-chriss Charles Open your eyes guys. Okay, time will come you'll seek God. I know will come and it's coming soon.
 
-    Like
+Like
+ · Reply · 1y · Edited
 
-     · Reply · 1y · Edited
-
-\Conor Anstey Jim-chriss Charles Cop-out answer.
-
-    Like
-
-     · Reply · 1y
-
-Conor Anstey Actually, not an answer at all.
-
-    Like
-
-     · Reply · 1y
+Conor Anstey Jim-chriss Charles Cop-out answer. Actually, not an answer at all.
 
 Dylan LaCoursiere It's easier to answer like that and shrink back into his comfort zone than reassess his beliefs, which he believes are correct by default, no matter what we say.
 
-    Like
-
-     · Reply · 1y · Edited
+Like
+ · Reply · 1y · Edited
 
 Jim-chriss Charles Because i believe in the Living GOD, who am i to speak of him? Let him speak himself in your lives. You shall meet him.
 
-    Like
-
-     · Reply · 1y
+Like
+ · Reply · 1y
 
 Dylan LaCoursiere I did let him speak himself into my life for several years, as I already told you two or three times. He didn't show himself in any way that couldn't be mistaken for anything else.
+
+On a separate thread on the same post:
+
+Jim-chriss Charles Folks there is this old saying, "Better you believe and there is no afterlife then you DON'T and you meet the afterlife!?"
+
+Like
+ · Reply · 2y
+
+Dylan LaCoursiere Pascal's Wager is intellectually dishonest both to yourself and to God.
+
+That line of thinking is borne from self-preservation, and God can see that. That's not true belief, that's a personal safety net.
+
+It also ignores the fact that it's a waste basing your life on something you're not sure is true but are just banking on being true. Especially if this is the only life you're sure you have.
+
+Like
+ · Reply · 2y
+
+Dyllan Carignan It's also a false dichotomy.
+
+Like
+ · Reply · 2y
+
+Jim-chriss Charles Surely, i'm telling the truth. What if there will be an afterlife?
+
+Like
+ · Reply · 2y
+
+Dylan LaCoursiere Then there will be an afterlife. The nature of that and the inclusivity is up in the air until facts about it can be somehow discerned.
+
+Like
+ · Reply · 2y
+
+Jim-chriss Charles So you gonna miss it? Since G-d's doctrine is the one teaching about it.
+
+Like
+ · Reply · 2y · Edited
+
+Dylan LaCoursiere But it's not the only one. It's just the only one you personally believe is correct.
